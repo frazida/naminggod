@@ -1,0 +1,2 @@
+# naminggod
+Substack newsletter
